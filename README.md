@@ -1,2 +1,2 @@
 # public
-https://todayer.ru
+https://perfect-seo.ru
